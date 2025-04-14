@@ -1,1 +1,1 @@
-# gotosea.github.io
+# gotoseaman.github.io
